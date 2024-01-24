@@ -1,5 +1,5 @@
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=35&pause=1000&color=F79142&center=true&vCenter=true&random=false&width=584&lines=FREE+FULL+CRACK+ILLUSTRATOR)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&size=35&pause=1000&color=F79142&center=true&vCenter=true&random=false&width=984&lines=FREE+FULL+CRACK+ILLUSTRATOR)](https://git.io/typing-svg)
 
 ![](https://iili.io/JcHYzen.png)
 
